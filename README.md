@@ -1,1 +1,0 @@
-# tingey.receipt10045
